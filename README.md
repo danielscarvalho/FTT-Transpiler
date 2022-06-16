@@ -17,4 +17,4 @@ Inspired by:
 
 Referências:
 
-- Livro do Dragão!!
+- O classico livro do Dragão!!
